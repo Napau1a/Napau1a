@@ -3,7 +3,7 @@
 - 🌱 Atualmente aprendendo a como usar esses bagui
 - 📫 Manda oi aí, sem medo de ser feliz. If you're not brazilian, u can text me either (but my english sucks) 😵‍💫
 - 😄 Pronomes: ile/dile; elu/delu; they/them
-- ⚡ Fun fact: sou fluente em LIBRAS :D & CODA
+- ⚡ Fun fact: sou fluente em LIBRAS :D & sou CODA
 
 <!---
 Napau1a/Napau1a is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
